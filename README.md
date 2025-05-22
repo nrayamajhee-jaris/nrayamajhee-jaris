@@ -1,1 +1,1 @@
-👋 <https://github.com/nrayamajhee/nrayamajhee>
+👋 <https://github.com/nrayamajhee>
